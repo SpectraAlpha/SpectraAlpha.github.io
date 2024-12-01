@@ -1,1 +1,1 @@
-# SpectraAlpha.github.io
+# Tniromin.me
